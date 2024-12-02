@@ -61,5 +61,5 @@ I do age regress, but if fully acting like a child, i'm most likely gonna be in 
 
 ![image](https://github.com/user-attachments/assets/bf7947b3-475d-4812-91bf-8823a1d60740)
 
-# Thank you for taking the time out your day to read this ! Have a great rest of your day / afternoon / night ! Always feel free to interact unless stated otherwise :3
+# Thank you for taking the time out your day to read this ! Have a great rest of your day / afternoon / night ! Always feel free to interact :3
 
