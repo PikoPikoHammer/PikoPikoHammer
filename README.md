@@ -26,7 +26,7 @@ If you see me sitting by myself, don't be afraid to hide behind or cover me! I'm
 
 ₊˚‧◟ ͜ ◞ ୨୧ ◟ ͜ ◞ ୨୧ ◟ ͜ ◞ ꒰  ♡  ꒱ ◟ ͜ ◞ ୨୧ ◟ ͜ ◞ ୨୧ ◟ ͜ ◞‧˚₊
 
-PLEASE do not copy my skins, howeer you can take inspiration, but please ask before you do! I won't force you to give credits but i'd love it if you did !!
+PLEASE do not copy my skins, however you can take inspiration, but please ask before you do! I won't force you to give credits but i'd love it if you did !!
 
 If I EVER have a skin that looks similar to yours, PLEASE LET ME KNOW SO I CAN FIX THE ISSUE , I don't like accidentally upsetting people :C 
 
