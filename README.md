@@ -1,4 +1,3 @@
 ・———— ・ ✦୨୧✦ ・———— ・ 
 
-![eec8832fa0d50ece2bd4f3d485103711](https://github.com/user-attachments/assets/20de269c-3c1a-4201-9289-e7d7b151ba1a)
-
+![fa4d16a5faeb2798787bb431099ec981](https://github.com/user-attachments/assets/8483bf8f-dd96-4271-92ea-b70f0e412200)
