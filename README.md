@@ -38,6 +38,5 @@
 　.⠀　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
 　　　　　✦⠀　   　　　,
 
-# " ' Cause I don't wanna be in love with another, even in another life .. " 
 
-WIP! :3 
+# WIP! :3 
