@@ -1,6 +1,6 @@
 ・———— ・ ✦୨୧✦ ・———— ・ ・———— ・ ✦୨୧✦ ・———— ・  ・———— ・ ✦୨୧✦ ・———— ・ 
-
-# ![eec8832fa0d50ece2bd4f3d485103711](https://github.com/user-attachments/assets/96f6158c-aaf4-4a92-b68e-2eae0e4a05d7)
+![eec8832fa0d50ece2bd4f3d485103711](https://github.com/user-attachments/assets/96f6158c-aaf4-4a92-b68e-2eae0e4a05d7)
+![]([https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png](https://github.com/user-attachments/assets/96f6158c-aaf4-4a92-b68e-2eae0e4a05d7) =250x250)
 ⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀.　　　　　　　　　　　　　.　　　ﾟ .　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　✦ 　　　　　,　　　　　　　.
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 　　　　　　*　　　　　　　　　　　.
