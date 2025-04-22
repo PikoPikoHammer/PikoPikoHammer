@@ -1,9 +1,5 @@
 <p align="center">
  " ${\textsf{\color{pink}please stay.}}$ "
 
- ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=pikopikohammer&color=ffb7c5)
-<p align="center">
- ![download (11)](https://github.com/user-attachments/assets/55abfb95-0597-4f1c-b3de-d36a77959b1c)
-
-
-
+ <p align="center">
+  <img src="https://i.pinimg.com/originals/87/a7/8e/87a78e7541d0bf53c7bf1eb3f79da22b.gif" width=400> <br>
