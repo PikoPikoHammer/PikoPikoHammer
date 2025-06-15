@@ -1,1 +1,2 @@
-<p align="center"> ♡
+<p align="center"> ♡  <a href="https://github.com/instrumentofchaos">@instrumentofchaos</a>
+<p align="center"> <a href="https://github.com/sunrivse">@sunrivse</a> , <a href="https://github.com/Valmpyre">@Valmpyre</a> , <a href="https://github.com/BigTerraco">@BigTerraco</a> , <a href="https://github.com/StargazingCountlessStar">@StargazingCountlessStar</a>
