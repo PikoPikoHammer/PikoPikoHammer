@@ -6,4 +6,4 @@
 ![blinkiesCafe-hr](https://github.com/user-attachments/assets/fbbac2a8-4013-4ab4-8f5a-bf5ee647dfb5)
 ![blinkiesCafe-mC](https://github.com/user-attachments/assets/4380e5b6-bc34-4771-8dc4-ff485bbc6583)
 ![blinkiesCafe-VV](https://github.com/user-attachments/assets/789593a4-22e3-4df8-bfb1-06a4b8a23af1)
-![blinkiesCafe-x6](https://github.com/user-attachments/assets/88cfa638-535d-4155-bc39-55cc48cb3606)
+
