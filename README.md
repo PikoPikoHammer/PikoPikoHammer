@@ -4,4 +4,4 @@
  ![absolute png](https://github.com/user-attachments/assets/c0d1cf35-4887-4140-a905-3cf048186214)
  <p align="center"> Revamp coming.......... uhhhhhhh guys when is the revamp coming
 
- <p align="center"> AWESOME PEOPLE WITH AWESOME STYLES !!  ☆ <a href="https://github.com/orangejuyce">@orangejuyce</a>, <a href="https://github.com/R0S1EP0S1ES">@R0S1EP0S1ES</a> , <a href="https://github.com/kephwle">@kephwle</a>
+ <p align="center"> AWESOME PEOPLE WITH AWESOME STYLES !!  ☆ <a href="https://github.com/orangejuyce">@orangejuyce</a>, <a href="https://github.com/R0S1EP0S1ES">@R0S1EP0S1ES</a> , <a href="https://github.com/C00kieOasis">@C00kieOasis</a>
