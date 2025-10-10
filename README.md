@@ -5,3 +5,5 @@
  <p align="center"> Revamp coming.......... uhhhhhhh guys when is the revamp coming
 
  <p align="center"> AWESOME PEOPLE WITH AWESOME STYLES !!  ☆ <a href="https://github.com/orangejuyce">@orangejuyce</a>, <a href="https://github.com/R0S1EP0S1ES">@R0S1EP0S1ES</a> , <a href="https://github.com/C00kieOasis">@C00kieOasis</a>
+ 
+ <p align="center"> Pspsps... little me is right here.. <a href="https://github.com/vanilacweam">@vanilacweam</a>
