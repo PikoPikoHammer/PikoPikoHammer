@@ -1,9 +1,5 @@
-<p align="center">   <a href="https://github.com/instrumentofchaos">@instrumentofchaos</a>
-<p align="center"> <a href="https://github.com/sunrivse">@sunrivse</a> , <a href="https://github.com/Valmpyre">@Valmpyre</a> , <a href="https://github.com/BigTerraco">@BigTerraco</a> , <a href="https://github.com/StargazingCountlessStar">@StargazingCountlessStar</a> ,  <a href="https://github.com/floatingflyx">@floatingflyx</a> , <a href="https://github.com/astxrox">@astxrox</a>
 
- ![absolute png](https://github.com/user-attachments/assets/c0d1cf35-4887-4140-a905-3cf048186214)
- <p align="center"> Revamp coming.......... uhhhhhhh guys when is the revamp coming
-
- <p align="center"> AWESOME PEOPLE WITH AWESOME STYLES !!  ☆ <a href="https://github.com/orangejuyce">@orangejuyce</a>, <a href="https://github.com/R0S1EP0S1ES">@R0S1EP0S1ES</a> , <a href="https://github.com/C00kieOasis">@C00kieOasis</a>
- 
- <p align="center"> Pspsps... little me is right here.. <a href="https://github.com/vanilacweam">@vanilacweam</a>
+<img width="2633" height="2480" alt="Untitled65_20251029221248" src="https://github.com/user-attachments/assets/84dacfa8-c073-435a-83ee-002cce267dbd" />
+<p align="center">
+︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+<p align="center">
